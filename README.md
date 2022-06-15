@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @tuannguy
+- 👋 Hi, I’m @tuannguy aka tuna 🐟
 
 I'm more professional on LinkedIn
 
